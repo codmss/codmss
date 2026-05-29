@@ -1,3 +1,1 @@
-## Hi ChaeEun's GitHub🫧
-
-    
+## Hi! ChaeEun's GitHub🫧
